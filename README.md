@@ -1,1 +1,1 @@
-Hi , This is to share our knowledge.
+Hi , This is just to share our knowledge.
